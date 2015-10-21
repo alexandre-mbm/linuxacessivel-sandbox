@@ -1,0 +1,1 @@
+Se este repositório foi apontado a você mas você ainda não sabe do que se trata, por favor, aguarde instruções. Muito provavelmente elas chegarão até você através do grupo virtual (lista de e-mails) do projeto Linux Acessível.
